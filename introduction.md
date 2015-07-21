@@ -367,21 +367,21 @@ form we will lose life and get into bondage.
 ####Unity
 
 
-**Concept:** Understanding the nature and meaning of beauty is one of 
+**Concept:** Understanding the nature and meaning of unity and symmetry is one of 
 the key themes in the philosophical discipline known as aesthetics. 
-The subjective experience of beauty involves the interpretation of the 
+The subjective experience of unity involves the interpretation of the 
 entity as being in balance and harmony with nature, which may lead to 
 feelings of attraction and emotional well-being. 
 
 **Principle (Immortality):** The unity is the undifferentiated plane from 
 which everything differentiates. This is where the journey of the mystic 
 whose quest for enlightenment and spiritual truth ends. 
-Eternity is defined by ascetics and mystics as timeless existence, 
+Unity is defined by ascetics and mystics as timeless existence, 
 where time stops or time ceases to exist. Past, present and future 
 merge into the unity, the now. It is a state in which we lose ourselves and our 
 identity. It is the state of ecstacy and bliss where each one of us and 
 everything around us ceases to exist and stays eternal. It is the state 
-where space, time, subject and object become one. 
+where space, time, subject and object becomes one. 
 
 ####Eternity
 
@@ -443,4 +443,4 @@ tried to comprehend and experience. It is the stillness that is
 incomprehensible to the intellectuals. 
 
 **The principle of Essence is Omniscient (Cyclical), Omnipotent 
-(Unified) and Omnipresent (Eternal Still).** 
+(Unified) and Omnipresent (Still).** 
