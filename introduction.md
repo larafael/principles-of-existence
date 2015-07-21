@@ -385,33 +385,29 @@ where space, time, subject and object becomes one.
 
 ####Eternity
 
-**Concept:** To many contemporary philosophers, existence has been a 
+**Concept:** To many contemporary philosophers, Being and becoming has been a 
 bone of contention since the time of Socrates; it gets complicated and 
 cannot be explained or described when philosophers and the 
-intellectuals try to explain the concept of existence objectively. The 
-reason for this is because existence is not entirely a thought or 
-concept, but has two components, essence and existence, nameless 
-and name, expression and expressionless. Therefore, for a better 
-understanding we will analyse the Existence as one whole with two 
-parts. 
+intellectuals try to explain the concept objectively. The 
+reason for this is because it has two components, essence and existence, nameless 
+and name, expression and expressionless.
 
 If we observe trees and animals in nature, or the stars in the universe, 
 what we sense with our senses is thought and feel. It can be 
-expressed objectively, but the intelligence and the beauty behind them 
+expressed objectively, but the potential behind the stars, galaxies and the multiverse 
 is the essence, it cannot be expressed objectively. 
 
-Existence is the Name and Essence is the Nameless, we have to have 
+Existence(Becoming) is the Name and Essence(Being) is the Nameless, we have to have 
 faith in the Essence. Faith is termed as belief without reason, neither 
 tangible nor comprehensible. The million dollar question is what to 
 believe in. Faith can make or break a person; it all depends on what 
-we believe in. The belief should be based in the Essence and in the 
-expression of the Essence, the Stillness, but not on the dogmas, 
+we believe in. The belief should be based in the Being but not on the dogmas, 
 powers and ideologies dictated by religious systems, political systems 
 and the financial systems. 
 
 The moment we have faith in the Essence, miracles will manifest, but 
 the moment we have faith in our sanity, dogmas and equations, evil 
-will manifest in the form of curse. 
+will manifest in the form of chaos and entropy. 
 
 Stillness means no movement, no noise, no emotion and no thought. It 
 is a silence that leads to tranquility and serenity. It is as gentle and 
@@ -424,12 +420,12 @@ and a sense of nothingness or emptiness.
 The stillness can be experienced by each one of us as it resides deep 
 inside us. In our lives we are so much lost in our thoughts, our 
 passions, our talks, our expressions and our movements that we fail to 
-acknowledge the Essence. We ignore it, eventually moving away from 
+acknowledge the Being. We ignore it, eventually moving away from 
 stillness towards void. If we continue to lead our lives as we do, we will 
 lose everything and become nothing. We are heading for a cross-road. 
 The choice is ours. By using our free will we have to decide and act 
 which way to go. We have evolved to a point where we have to start 
-taking responsibility for our own lives instead of blaming others for our 
+taking responsibility and accountability for our own lives instead of blaming others for our 
 decisions and actions. 
 
 **Principle (Stillness):** The kiss of the breeze and eye of the cyclone 
