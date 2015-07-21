@@ -3,7 +3,7 @@ Table of contents
 
   
   
-  1. [Introduction](#introduction)
+  1. [Introduction](#introduction.md)
   
   __[Principles of Expression](#expression)__
   
@@ -17,4 +17,4 @@ Table of contents
    
   4. [Alchemy](#alchemy)
    
-  12. [Reference](#reference)
+  12. [Reference](#reference.md)
