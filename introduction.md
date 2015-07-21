@@ -364,7 +364,7 @@ to everything and everything to nothing. We have to lose form to
 transform, detach form to get life and freedom. If we get attached to 
 form we will lose life and get into bondage. 
 
-####Eternity
+####Unity
 
 
 **Concept:** Understanding the nature and meaning of beauty is one of 
@@ -373,17 +373,17 @@ The subjective experience of beauty involves the interpretation of the
 entity as being in balance and harmony with nature, which may lead to 
 feelings of attraction and emotional well-being. 
 
-**Principle (Immortality):** The Eternity is the undifferentiated plane from 
+**Principle (Immortality):** The unity is the undifferentiated plane from 
 which everything differentiates. This is where the journey of the mystic 
 whose quest for enlightenment and spiritual truth ends. 
 Eternity is defined by ascetics and mystics as timeless existence, 
 where time stops or time ceases to exist. Past, present and future 
-merge into one. It is a state in which we lose ourselves and our 
-identity. It is the state of eternal bliss where each one of us and 
-everything around us ceases to exist and stays the same. It is the state 
+merge into the unity, the now. It is a state in which we lose ourselves and our 
+identity. It is the state of ecstacy and bliss where each one of us and 
+everything around us ceases to exist and stays eternal. It is the state 
 where space, time, subject and object become one. 
 
-####Unity
+####Eternity
 
 **Concept:** To many contemporary philosophers, existence has been a 
 bone of contention since the time of Socrates; it gets complicated and 
@@ -443,4 +443,4 @@ tried to comprehend and experience. It is the stillness that is
 incomprehensible to the intellectuals. 
 
 **The principle of Essence is Omniscient (Cyclical), Omnipotent 
-(Eternal) and Omnipresent (Still).** 
+(Unified) and Omnipresent (Eternal Still).** 
