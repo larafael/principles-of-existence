@@ -192,7 +192,7 @@ expression is a spectrum and is dual in nature. When we learn to
 balance and moderate we express Sagacity, but if we polarise we 
 express Satanism. 
 
-Prniciples of Creation
+Principles of Creation
 -----
 
 ####Idea
@@ -252,4 +252,195 @@ facts at the other end and emotions can be ecstasy at one end and
 extreme fear at the other end. Consciousness and Creation resonate 
 at a quantum level. 
 
+####Blend
 
+**Concept:** Most of the religions believe that God created the universe 
+from nothing. Ex nihilo in Latin means out of nothing. It is used to 
+explain creation, as in creatio ex nihilo, meaning creation out of 
+nothing. 
+
+As we resonate in harmony, peace and love, life unfolds transforming 
+the fool into a sage. Likewise, as we resonate in discordance, chaos 
+and hate, life unfolds transforming the fool into satan. It is an 12 Visual Memes 
+expression based on love and peace, or chaos and hate. From 
+whichever angle we look, life is rhythm divine. It is the rhythm of the 
+heart beat, the waves of the ocean, songs of the birds, flow of the 
+stream in the woods, motion of the planets, stars of the galaxy and 
+galaxies in the universe. 
+
+**Principle (Beauty):** Life unfolds as the consciousness which is 
+experience from infinity, blends with matter which is vibration from the 
+void, triggering the rivers of time for eons. It simply means blending of 
+the yin and the yang.
+
+When there is balance and equilibrium in our lives, then there is 
+rhythm and peace in each and every one of us. When these qualities 
+are absent, even though there may be plenty in our lives, we will still 
+lack the peace, and rhythm, and we will not feel the melody. 
+
+Life is a university; we learn our lessons by experiencing pleasure and 
+pain, which eventually leads us to be transformed into a Sage if we 
+express peace, harmony and love, or a Satan, like a Dracula or 
+Vampire, if we express hate and discordance, sucking the life of others 
+because they do not have a life of their own. They have to hunt the life 
+of animals, plants and planets in the galaxy and the universe. 
+
+The choice is ours; it is our liberty and free will to choose to become a 
+sage or a satan, as we have the potential to become both. If we evolve 
+into a sage we will have eternal life and freedom, but if we evolve into 
+satan we will have eternal pain and bondage, hunting for freedom, 
+harmony, the rhythm, the Holy Grail, which will be evading us forever.
+
+####Justice
+
+**Concept:** Natural justice maintains order and harmony in the society. 
+We live in peace because of order; otherwise there would be chaos 
+and civil war everywhere. It is implemented in two modes: as 
+distribution of resources and retribution of offences.
+
+The proportionality of distribution of the resources varies from 
+aristocracy which is based on status, socialism which is based on 
+equality, meritocracy or capitalism which is based on what each 
+deserves, and communism which is based on what each of us needs. 
+
+Proportionality of retribution varies from compassion and mercy on the 
+one hand, and tit for tat on the other; it means we will be forgiven with 
+no compensation or retribution at one end of the spectrum, and eye for 
+an eye (tit for tat) on the other end of the spectrum.
+
+The proportionality of distribution and retribution has been an ongoing 
+debate among the legal, theological and philosophical schools for 
+ages. 
+
+**Principle (Equity):** Justice is based on Law and Equity. Equity is the 
+name given to the set of legal principles, which supplement strict rules 
+of law, so as to achieve Natural justice. Equity issues injunctions or 
+decrees directing someone either to act or to forbid from acting. Often 
+this form of relief is in practical terms more valuable to a litigant in 
+terms of time. 
+
+The Law is the principle of Equality, the Ethic reciprocity which is 
+neither mutable nor negotiable in Eternity, in Infinity or in Void. 
+
+The proportionality of distribution should be based on Law, which 
+means we will either progress by helping others to progress, or regress 
+by inhibiting the progress of others. If we progress others we will be 
+progressed, but if we regress others we will therefore be regressed. 
+
+The proportionality of retribution should be based on Law, which 
+means that if we forgive others we will be forgiven, if we reattribute 
+others we will be reattributed. Mercy is shown to those who express 
+mercy to other creatures like human beings, animals and plants. If we 
+take lives our lives will be taken, if we give life to others we get life.
+
+The Creation is created by Abstraction, explores the Consciousness 
+and is terminated by Equity. The creation is a spectrum and it is infinite 
+in nature. If the creation is based on love and peace it will have life and 
+freedom, but if it is based on hate and discordance it will be a bonded 
+slave. 
+
+Principles of Essence
+-----
+
+####Alchemy(Infinity)
+
+**Concept:** Change is change for good, freedom, life and for betterment, 
+or change for worse, slavery and death. It means setting things right, 
+correcting errors and mistakes, learning our lessons from our 
+mistakes. Alchemy is the process of transmutation or transformation, 
+which means changing base metal to noble metal, changing death to 
+life, void to stillness. 
+
+When we observe the life cycle of a butterfly, it goes through a process 
+of different stages of change, by which the ugly larva becomes the 
+most beautiful butterfly through change. 
+
+**Principle (Recycle):** It is the transmutation of right to left and left to 
+right, above to below and below to above. It is the transmutation of 
+death to life by moving from slavery to freedom, from knowledge of 
+good and evil to knowledge of freedom and free will, transforming a 
+fool to a sage. It can be from void to stillness, stillness to void, nothing 
+to everything and everything to nothing. We have to lose form to 
+transform, detach form to get life and freedom. If we get attached to 
+form we will lose life and get into bondage. 
+
+####Eternity
+
+
+**Concept:** Understanding the nature and meaning of beauty is one of 
+the key themes in the philosophical discipline known as aesthetics. 
+The subjective experience of beauty involves the interpretation of the 
+entity as being in balance and harmony with nature, which may lead to 
+feelings of attraction and emotional well-being. 
+
+**Principle (Immortality):** The Eternity is the undifferentiated plane from 
+which everything differentiates. This is where the journey of the mystic 
+whose quest for enlightenment and spiritual truth ends. 
+Eternity is defined by ascetics and mystics as timeless existence, 
+where time stops or time ceases to exist. Past, present and future 
+merge into one. It is a state in which we lose ourselves and our 
+identity. It is the state of eternal bliss where each one of us and 
+everything around us ceases to exist and stays the same. It is the state 
+where space, time, subject and object become one. 
+
+####Unity
+
+**Concept:** To many contemporary philosophers, existence has been a 
+bone of contention since the time of Socrates; it gets complicated and 
+cannot be explained or described when philosophers and the 
+intellectuals try to explain the concept of existence objectively. The 
+reason for this is because existence is not entirely a thought or 
+concept, but has two components, essence and existence, nameless 
+and name, expression and expressionless. Therefore, for a better 
+understanding we will analyse the Existence as one whole with two 
+parts. 
+
+If we observe trees and animals in nature, or the stars in the universe, 
+what we sense with our senses is thought and feel. It can be 
+expressed objectively, but the intelligence and the beauty behind them 
+is the essence, it cannot be expressed objectively. 
+
+Existence is the Name and Essence is the Nameless, we have to have 
+faith in the Essence. Faith is termed as belief without reason, neither 
+tangible nor comprehensible. The million dollar question is what to 
+believe in. Faith can make or break a person; it all depends on what 
+we believe in. The belief should be based in the Essence and in the 
+expression of the Essence, the Stillness, but not on the dogmas, 
+powers and ideologies dictated by religious systems, political systems 
+and the financial systems. 
+
+The moment we have faith in the Essence, miracles will manifest, but 
+the moment we have faith in our sanity, dogmas and equations, evil 
+will manifest in the form of curse. 
+
+Stillness means no movement, no noise, no emotion and no thought. It 
+is a silence that leads to tranquility and serenity. It is as gentle and 
+light as a touch of a feather. Void is the reverse of stillness. The 
+fundamental difference between stillness and void is that stillness is 
+everything, whereas void is nothing. Both look similar, but void does 
+not lead to tranquility and serenity, instead it creates a web of illusion 
+and a sense of nothingness or emptiness. 
+
+The stillness can be experienced by each one of us as it resides deep 
+inside us. In our lives we are so much lost in our thoughts, our 
+passions, our talks, our expressions and our movements that we fail to 
+acknowledge the Essence. We ignore it, eventually moving away from 
+stillness towards void. If we continue to lead our lives as we do, we will 
+lose everything and become nothing. We are heading for a cross-road. 
+The choice is ours. By using our free will we have to decide and act 
+which way to go. We have evolved to a point where we have to start 
+taking responsibility for our own lives instead of blaming others for our 
+decisions and actions. 
+
+**Principle (Stillness):** The kiss of the breeze and eye of the cyclone 
+can only be felt but cannot be captured in a container. 
+Stillness is the silence. It is the silence that exists for infinity and 
+speaks for eternity in infinite languages. It is the silence in the eye of 
+the cyclone which creates the storm, thunder and lightning. It is the 
+silence in the black holes that creates the galaxies, the stars, quantum, 
+quarks, photons and us. It is the stillness that the ascetics and mystics 
+tried to comprehend and experience. It is the stillness that is 
+incomprehensible to the intellectuals. 
+
+**The principle of Essence is Omniscient (Cyclical), Omnipotent 
+(Eternal) and Omnipresent (Still).** 
